@@ -1,5 +1,2 @@
 theme: jekyll-theme-tactile
-
-header {
-  display: none;
-}
+title: null
