@@ -1,2 +1,6 @@
 theme: jekyll-theme-tactile
-title: null
+title: Your awesome title
+author: BASiQ
+footer-links:
+  dribbble:
+  email:
