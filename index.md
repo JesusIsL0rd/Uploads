@@ -12,12 +12,12 @@ Search these for books you are interested in. Then download the collection that 
 
 ## LINKS
 
-#### FRAMES COLLECTION (Updated 03/21 by BASiQ)
+#### FRAMES DOWNLOAD LINK (Updated 03/21 by BASiQ)
 
-[FRAMES FILE LIST](https://drive.google.com/drive/folders/1-1TPdRNQbLwXDCdDtwdbnYp8Dw03ZYH8?usp=sharing)
+[FRAMES DOWNLOAD LINK](https://drive.google.com/drive/folders/1-1TPdRNQbLwXDCdDtwdbnYp8Dw03ZYH8?usp=sharing)
 
-#### BASiQ FILE LIST (Updated 3/21 by BASiQ)
+#### BASiQ DOWNLOAD LINK (Updated 3/21 by BASiQ)
 
-[BASiQ FILE LIST](https://drive.google.com/drive/folders/1-2gKZ9WN5c5E6P8WXhPIDsf3-8KBu1AU?usp=sharing)
+[BASiQ DOWNLOAD LINK](https://drive.google.com/drive/folders/1-2gKZ9WN5c5E6P8WXhPIDsf3-8KBu1AU?usp=sharing)
 
 If these links die. Hit BASiQ up on CDL.
