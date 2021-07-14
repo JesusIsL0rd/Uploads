@@ -15,7 +15,7 @@ Search these for books you are interested in. Then download the collection that 
 #### FRAMES DOWNLOAD LINK (Updated 07/21 by BASiQ)
 
 [FRAMES DOWNLOAD LINK](https://drive.google.com/drive/folders/1Co7TF5FX9UixNJ5CiYc3dFOtegGDYIEC)
-eBooks -> Christian CDL - eBooks -> FRAMES-BASiQ Collection
+ | eBooks -> Christian CDL - eBooks -> FRAMES-BASiQ Collection
 
 #### BASiQ DOWNLOAD LINK (Updated 07/21 by BASiQ)
 
